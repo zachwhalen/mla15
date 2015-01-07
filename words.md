@@ -11,7 +11,9 @@ Locating The Peripheral in the context of Gibson's fiction is deceptively straig
 
 ### [3 - parallel imagery] 
 
-The immobilized airstream trailer in the Fishers's backyard where Flynne first accesses the continuum is a clear callback to the "Airstream Futurolopis" of Gernsbackian provenance, and the occluded aerodynamics of its metal surface provides an image that recurs throughout the Peripheral, from its direct parallel in Lev's 22nd century Mercedes "Gobiwagen" to the basic form of a meticulously-acquired breakfast burrito.
+The immobilized airstream trailer in the Fishers's backyard where Flynne first accesses the continuum is a clear callback to the "Airstream Futurolopis" of Gernsbackian provenance, and the occluded aerodynamics of its metal surface provides an image that recurs throughout the Peripheral, from its direct parallel in Lev's 22nd century Mercedes "Gobiwagen" to the foil-wrapped structure of a meticulously-acquired breakfast burrito.
+
+### [4 - unpacking the image]
 
 
 
