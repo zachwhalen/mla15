@@ -23,7 +23,7 @@ Gibson's fiction has a preoccupation with surfaces, and the design of things alm
 
 ### [6 - inside/outside as class distinction]
 
-### [7 - Gobiwagen's raygun gothic design.]
+### [7 - interface (polymer) has curatorial effect]
 
 ### [8 - futurescape of London]
 
