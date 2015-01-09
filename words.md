@@ -15,23 +15,31 @@ The immobilized airstream trailer in the Fishers's backyard where Flynne first a
 
 ### [4 - interior/exterior]
 
-Gibson's fiction has a preoccupation with surfaces, and the design of things almost always matters where the anachronistic do-si-do of skeuomorphism can blithely signify a nostalgia for what once was to come. As a science fiction of the present, the {...}
+Gibson's fiction has a preoccupation with surfaces, and the design of things almost always matters where the skeuomorphic do-si-do blithely registers a nostalgia for what once was to come and the veiled threats of what still may be. As an image, the recurring, resonating presence of the airstream creates its own continuum, disrupting both sides of the jackpot through its ghostly semiotics. 
 
 ### [5 - airstream]
 
-{brochure language about walls, windows}
+{brochure language about wall construction}
 
 ### [6 - inside/outside as class distinction]
 
-### [7 - interface (polymer) has curatorial effect]
+The airstream trailer and the stub it facillitates is of course a junction of many different contrasts -- not just the near future and far future, but also between poverty and wealth, countryside and metropolis, between ends and means. This is the original double logic of the Airstream as "mobile home": see the world without having to live there. Move through, move over.
 
-### [8 - futurescape of London]
+### [7 - curatorial effect of interior polymer]
 
-### [9 - ]
 
-### [10]
 
-### [11]
+### [8 - galloway on interface ]
+
+### [9 - more galloway or someone else]
+
+### [10 - mobility]
+
+{brochure language on independence, mobility}
+
+### [11 - London]
+
+
 
 ### [12]
 
@@ -39,11 +47,11 @@ Gibson's fiction has a preoccupation with surfaces, and the design of things alm
 
 ### [14]
 
-### [15]
+### [15 - more ad copy]
 
 ### [16]
 
-### [17]
+### [17 - flynne's BS quote from book]
 
 ### [18]
 
