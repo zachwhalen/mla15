@@ -1,4 +1,3 @@
-“In the heart of these words is an entire life’s dream. To those of you who find in the promise of these words your promise, I bequeath this creed . . . my dream belongs to you.”
 
 To place the great wide world at your doorstep for you who yearn to travel with all the comforts of home.
 
